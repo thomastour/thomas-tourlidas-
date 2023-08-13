@@ -1,4 +1,4 @@
-# I'm on a reskilling journey to become a Software Engineer. Shaping the digital future one line of code at a time! 😎👨‍💻
+#Shaping the digital future one line of code at a time! 😎👨‍💻
 
 ## Connect with me:
 
